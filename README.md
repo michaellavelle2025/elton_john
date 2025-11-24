@@ -14,6 +14,10 @@ See: [Psychological Conditions](https://github.com/michaellavelle2025/psychologi
 
 * [808 State The Only Rhyme That Bites - Music Video 1990](https://youtube.com/watch?v=0CMiB4z8JgY)
 
+## Abuse
+
+* [Abuse](https://youtube.com/playlist?list=PLf2hNFDbLeZea_n4a4bCEp_9Uk_BamgTR)
+  
 ## Silencing
 
 * [Rowan Atkinson - Interview with Elton John](https://youtube.com/watch?v=Nl0HqlbX7dc)
