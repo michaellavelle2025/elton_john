@@ -8,6 +8,12 @@
 
 See: [Psychological Conditions](https://github.com/michaellavelle2025/psychological-conditions)
 
+## Sadism
+
+* [Pet Shop Boys/Violence (Hacienda Version) - Projections Video Remaster](https://youtube.com/watch?v=1e4ouFS25RM&list=PLueXmE7SrlISR36XIV4zaV8jrFgltVTqn&index=9&pp=iAQB8AUB)
+
+* [808 State The Only Rhyme That Bites - Music Video 1990](https://youtube.com/watch?v=0CMiB4z8JgY)
+
 ## September 11th 2001
 
 * [a-ha - Manhattan Skyline](https://youtube.com/watch?v=WY2r28M1TrY&list=PLf2hNFDbLeZej7-nClhDaT5tg3O2pKp7g&index=1&pp=gAQBiAQB8AUB)
