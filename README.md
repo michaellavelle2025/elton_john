@@ -14,6 +14,12 @@ See: [Psychological Conditions](https://github.com/michaellavelle2025/psychologi
 
 * [808 State The Only Rhyme That Bites - Music Video 1990](https://youtube.com/watch?v=0CMiB4z8JgY)
 
+## Silencing
+
+* [Rowan Atkinson - Interview with Elton John](https://youtube.com/watch?v=Nl0HqlbX7dc)
+
+* [Depeche Mode - Enjoy the Silence](https://youtube.com/watch?v=aGSKrC7dGcY)
+
 ## September 11th 2001
 
 * [a-ha - Manhattan Skyline](https://youtube.com/watch?v=WY2r28M1TrY&list=PLf2hNFDbLeZej7-nClhDaT5tg3O2pKp7g&index=1&pp=gAQBiAQB8AUB)
