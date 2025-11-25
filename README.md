@@ -26,7 +26,7 @@ See: [Psychological Conditions](https://github.com/michaellavelle2025/psychologi
 
 ## Drugs and Chemicals
 
-[New Order - Chemical](https://youtube.com/watch?v=jWCd0peJry4)
+* [New Order - Chemical](https://youtube.com/watch?v=jWCd0peJry4)
 
 ## September 11th 2001
 
