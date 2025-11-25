@@ -24,7 +24,15 @@ See: [Psychological Conditions](https://github.com/michaellavelle2025/psychologi
 
 * [Depeche Mode - Enjoy the Silence](https://youtube.com/watch?v=aGSKrC7dGcY)
 
-## Drugs and Chemicals
+## Annihilation, Destruction and Drugs & Chemicals
+
+* [Clubhouse - Light My Fire](https://youtube.com/watch?v=9rcPkJoL5XY)
+
+* [Vanilla Ice - Ice Ice Baby](https://youtube.com/watch?v=rog8ou-ZepE)
+
+* [New Kids On The Block - You Got It (The Right Stuff)](https://youtube.com/watch?v=tbIEwIwYz-c)
+
+### Targeting Men
 
 * [New Order - Chemical](https://youtube.com/watch?v=jWCd0peJry4)
 
